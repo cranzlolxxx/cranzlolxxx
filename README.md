@@ -10,3 +10,14 @@
 <p align="center"> Huh? my pronouns ? i go by 𝐇𝐄┃𝐇𝐄𝐑 .ᐟ.ᐟ
 
 > <p align="center"> ( 哈？我的代称？我用 𝐇𝐄┃𝐇𝐄𝐑 .ᐟ.ᐟ )
+
+<p align="center"> ﹒﹕†༝༚༝༚༝༚༝༚༝༚༝༚༝༚༝༚༝༚༝༚༝༚༝༚༝༚༝༚༝༚༝༚༝༚༝༚༝༚༝༚༝༚༝༚༝༚༝༚༝༚༝༚༝༚༝༚ †﹕﹒
+  
+<p align="center">  𝗠𝗔𝗜𝗡 𝗙𝗔𝗡𝗗𝗢𝗠𝗦 ┃ 主坑 
+<p align="center"> Dragon Ball, One Piece, Ace Attorney, FNaF, FNF, Skullgirls, 
+  
+> others┃副坑 . . .
+
+> Naruto, Ushio&Tora, Gachiakuta, Mythology, Rodamrix, Papa Louie, Mouthwashing
+
+
